@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **swaroopswaroop045@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1uiddjxvWm0JcEfONOM4PkMoIpILmuyFm/view?usp=drive_link](https://drive.google.com/file/d/1uiddjxvWm0JcEfONOM4PkMoIpILmuyFm/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1uiddjxvWm0JcEfONOM4PkMoIpILmuyFm/view?usp=drive_link](https://drive.google.com/file/d/1elFcN7YHATI0VdcnGYhF3N27R_DL_dMP/view?usp=drivesdk )
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
